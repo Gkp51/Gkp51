@@ -9,6 +9,5 @@ Here are some ideas to get you started:
 - 🌱 I’m currently graduating from SNDT university in Computer science.
 - 👯 I’m looking to collaborate on with Open Source projects.
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact:  I like to connect with people.
 - 📫 How to reach me: gkp512003@gmail.com
 
